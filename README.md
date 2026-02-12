@@ -4,7 +4,8 @@
 - 🎓 **Computer Science Student** specializing in AI but before that, is a cool **Finance girl** - or ***at least I think so!*** (Got ya face ^^) 😊😊😊
 - 💼 My mission: Bridging the gap between complex technical tools and real-world **business solutions** to provide actionable insights. 📈✨
 - 🧠 Deeply interested in **Neural Networks**, **NLP**, and building robust **Data Engineering** pipelines.
-- ⚡ Fun but **TRYINGGG to make it a Fact** 🫣🫣🫣: I play snipper well ... (Well, snipper is cool, right? ... Right?) 🔫🎮 
+- ⚡ Fun but **TRYINGGG to make it a Fact** 🫣🫣🫣: I play snipper well ... (Well, snipper is cool, right? ... Right?) 🔫🎮
+- A very huge fan of **Penguins** 🐧🐧🐧 and can name them all if you let me 🐧❤️ 
 
 ---
 
